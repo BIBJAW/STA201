@@ -72,7 +72,7 @@ Examples:
 
 #### Projecting your company's image:
 
-> When you communicate with someone outside your organization , it is more than a conversations between two individuals. You represent your company and therefore 
+> When you communicate with someone outside your organization , it is more than a conversations between two individuals.
 
 ### 4.2: Adapting to your Audience: Controlling your style and tone:
 
